@@ -1,5 +1,5 @@
 ### Hi there 👋
 
 
-- 🌱 I’m currently learning everything
+- 🌱 I’m learning everything
 
